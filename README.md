@@ -1,4 +1,4 @@
-# Hi, I'm Kingsley 👋
+# Hi, I'm Kingsley | AI & Open Source Developer 👋
 
 🎓 Master of Artificial Intelligence Student at Western Sydney University
 
